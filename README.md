@@ -1,4 +1,4 @@
-# 🌟 Hi there! I'm ** Satya 👋**
+# 🌟 Hi there! I'm **Satya 👋**
 ### Software Developer • Backend Engineer • AI & Edge Computing Enthusiast
 
 📍 Bangalore, Karnataka
