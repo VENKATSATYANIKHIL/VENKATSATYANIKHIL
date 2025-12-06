@@ -1,4 +1,4 @@
-# 🌟 Hi there! I'm **CH Venkat Satya Nikhil 👋**
+# 🌟 Hi there! I'm ** Satya 👋**
 ### Software Developer • Backend Engineer • AI & Edge Computing Enthusiast
 
 📍 Bangalore, Karnataka
